@@ -1,11 +1,4 @@
 # cop290_a3
 Hello Worldad
-kj
-
-
-njgfkuwegf
-kufgklwue
-hjkwfh
-jwfk
-hjwefv
-kwb
+let us pull into computer
+oh yeah
